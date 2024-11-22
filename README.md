@@ -15,3 +15,7 @@ Buon lavoro!
 
 ## Screenshots
 
+![Immagine 2024-11-22 223029](https://github.com/user-attachments/assets/eb774cfe-2e69-44e0-9d14-73ec258e8bb1)
+
+![Immagine 2024-11-22 233038](https://github.com/user-attachments/assets/552cbcd6-ef0b-4056-8baa-8d9f82f70ec6)
+
